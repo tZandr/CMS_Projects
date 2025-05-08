@@ -1,4 +1,4 @@
-#Scentique
+# Scentique
 
 This is a project that I was given 5/5 - 2025.
 It's a newly started business that aims to sell cologne.

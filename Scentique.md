@@ -7,5 +7,5 @@ They came to me with a finished logo, that at the moment stays untouched and we'
 Project hasn't launched as of yet, given it's only the 8th of April as I write this.
 Link will be published as soon as I have something worth presenting.
 
-Disclaimer:
+DISCLAIMER:
 Should you google the website before I post the link here, it will be the work they attempted themselves, or in the midst of its creation to present the changes to the owners.
